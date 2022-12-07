@@ -2,7 +2,7 @@
 - 👀 I’m interested in Development Application
 - 🌱 I’m currently learning anything in development, code and programming language to keep be better Programmer
 - 📫 How to reach me on my email:
-Contact me : sherlynjelina@gmail.com
+Contact me : sherlynjelina@gmail.com or
              sherlyanjelina2323@gmail.com
 
 <!---
